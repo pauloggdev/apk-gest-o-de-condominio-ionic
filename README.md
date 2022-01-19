@@ -1,0 +1,1 @@
+# apk-gest-o-de-condominio-ionic
